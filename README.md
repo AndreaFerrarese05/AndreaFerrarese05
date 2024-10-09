@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AndreaFerrarese05
+- 🌱 I’m currently studying at the University of Padua, Italy, following the Computer Engineering course
